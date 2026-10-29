@@ -1,6 +1,6 @@
 Gerson Enrique Rojas Gómez
 
-Psicólogo y psicoterapeuta psicoanalítico · CPsP N.º 52907 Atención presencial (Cieneguilla, Lima) y online
+Psicólogo y psicoterapeuta psicoanalítico · CPsP N.º 52907 Atención presencial (Cieneguilla y Miraflores, Lima) y online
 
 Sobre mí
 
